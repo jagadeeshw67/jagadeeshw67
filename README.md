@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **web development & design**
 
-- 📫 How to reach me **jagadeeshw67@gmail.com**
+- 📫 How to reach me **jagadeeshw67@gmail.com Or call-9677240750**
 
 - ⚡ Fun fact **I am funny**
 
